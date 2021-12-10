@@ -1,0 +1,4 @@
+- 👋 I’m @en7y
+- 👀 I’m interested in bruh idk
+- 💞️ I’m looking to collaborate on homies
+- 📫 How to reach me se7en.#7659
